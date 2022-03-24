@@ -419,7 +419,7 @@ Monument Commoratif pour L'Officer Sean Collier.
 
 ### Images
 
-Christian Boltanski. [Personnes - Monumenta 2010](http://www.voir-et-dire.net/?Christian-Boltanski-Personnes-Monumenta-2010). \[![This resource may not render correctly in a screen reader.](/images/inacessible.gif)[Personnes (PDF)](https://secretparisblog.files.wordpress.com/2014/06/christian-boltanski.pdf)\]
+Christian Boltanski. [Personnes - Monumenta 2010](http://www.voir-et-dire.net/?Christian-Boltanski-Personnes-Monumenta-2010). \[[Personnes (PDF)](https://secretparisblog.files.wordpress.com/2014/06/christian-boltanski.pdf)\]
 
 ### Films
 
